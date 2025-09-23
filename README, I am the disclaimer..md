@@ -1,0 +1,1 @@
+These are my words. They are my reflections on where I am right now; how I am and want to be (or not). This is purely personal. There are no political affiliations, or companies directly influencing these words. My thoughts and writings are a product of my interactions and surroundings. This is me. And what I see. 
