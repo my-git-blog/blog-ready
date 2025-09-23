@@ -1,4 +1,4 @@
-# Home as Horizon
+# Home a(s/t the) Horizon
 The third-culture symptom, when embraced, is less disease than expansion of consciousness. It is learning that the boundary between home and abroad is porous. It is understanding that living elsewhere is not about surrendering one identity for another, but about allowing both to coexist—like parallel melodies in the same song.
 In the end, perhaps home is not a noun but a verb. Home is the ongoing act of making, of translating moments, of loving people in whatever language comes closest to truth. And so the foreigner, living among wonderful neighbors and international companions alike, is not rootless but rooted in plurality.
 This, then, is my confession and my letter: I came here a guest. I remain, in some sense, always slightly apart. And yet I live here with love, shaped daily by the culture I was not born into but which now shapes the contours of my very being. It is not a second home. It is simply home.
