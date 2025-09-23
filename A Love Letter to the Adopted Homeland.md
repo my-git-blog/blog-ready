@@ -1,0 +1,6 @@
+# A Love Letter to the Adopted Homeland
+
+To the country that welcomes outsiders with warmth, that embraces both its own traditions and the transient lives passing through: gratitude. You have shown that home is not soil but invitation. Your streets carry memories I did not expect to form. Your festivals taught me rhythms foreign yet familiar, as if joy itself needs no translation.
+
+At times, I wonder if I will ever belong fully. And yet, perhaps that question misses the point. For here, amid the subtle misalignments, I have learned to belong differently—to place roots not only in heritage but in chosen experience. You have given me the gift of duality: to be at once insider and outsider, to carry reverence for what I was born into and love for what I found later.
+In your people—both local and international—I see reflections of resilience and generosity. To the friends who shared their kitchens, who helped me untangle bureaucratic puzzles, who laughed with me at my accents: you are part of the bridge that makes this third-culture life not a burden, but a wonder.
